@@ -1,0 +1,2 @@
+# Novalistic-Ai
+Good App.
